@@ -1,4 +1,4 @@
-#  
+#  Experience ultimate mining tycoon like never before with stealth ultimate mining tycoon Scripts, the #1 Script. Includes undetectable and
 
 
 
